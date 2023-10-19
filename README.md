@@ -1,1 +1,1 @@
-# How fucking dare you
+# Nothing to read here
